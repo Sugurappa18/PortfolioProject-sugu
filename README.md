@@ -1,1 +1,10 @@
-# PortfolioProject-sugu
+![Screenshot (11)](https://github.com/user-attachments/assets/764e5f3c-a492-4211-b0ca-883a35603a60)
+![Screenshot (10)](https://github.com/user-attachments/assets/6469ab8f-1ceb-44ca-9397-6bb03b179d04)
+![Screenshot (9)](https://github.com/user-attachments/assets/a2bcb635-0aba-4a6e-a0a2-b8ab84c4b73d)
+![Screenshot (8)](https://github.com/user-attachments/assets/52cb0eba-6ae9-429b-bbbc-c6342f4e7002)
+![Screenshot (7)](https://github.com/user-attachments/assets/0c6d2acb-d94d-4b3f-99c0-341808b27c0a)
+![Screenshot (6)](https://github.com/user-attachments/assets/4df5a87a-e5a0-47d2-a4ab-2308d58e174c)
+![Screenshot (5)](https://github.com/user-attachments/assets/b4574712-8c79-4c70-9121-66aa250f9990)
+![Screenshot (4)](https://github.com/user-attachments/assets/d644f6f2-93c8-4134-a1d7-367987080c80)
+![Screenshot (3)](https://github.com/user-attachments/assets/6d76d56e-3eb0-430d-81fc-9dbe646a3832)
+![Screenshot (1)](https://github.com/user-attachments/assets/8bdbc18b-5fa9-4224-b0fb-f22796c7b9c6)
